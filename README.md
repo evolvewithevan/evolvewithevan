@@ -4,4 +4,5 @@
 - 🛸 I’m looking to collaborate on anything that has to do with sound or visuals
 - 📡 How to reach me: evolvewithevan@gmail.com
 - 🛰️ Pronouns: she
-- ✨ Fun fact: If it can break, it probably already did
+
+  *If it can break, it probably already did*
