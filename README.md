@@ -1,6 +1,6 @@
 ## 🪐 Hi, I’m Evelyn
 
-- ☄️ Making things fun
+- ☄️ Making things Fun
 - 🌌 Learning UX and Project Management
 - 🛸 Lets build your ideas
 - 📡 evolvewithevan@gmail.com
