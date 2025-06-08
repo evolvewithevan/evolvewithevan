@@ -1,10 +1,10 @@
 ## 🪐 Hi, I’m Evelyn
 
-- ☄️ I’m interested in making fun things!
-- 🌌 I’m currently learning UX and Project Management
-- 🛸 I’m looking to collaborate on anything that has to do with sound or visuals
-- 📡 How to reach me: evolvewithevan@gmail.com
-- 🛰️ Pronouns: she
+- ☄️ Making things fun
+- 🌌 Learning UX and Project Management
+- 🛸 Lets build your ideas
+- 📡 evolvewithevan@gmail.com
+- 🛰️ Also on Discord : `@livingsoul.` 
 
 Made with ❤️
 
