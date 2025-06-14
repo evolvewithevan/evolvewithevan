@@ -1,4 +1,4 @@
-## 🪐 Hi, I’m Evelyn\
+## 🪐 Hi, I’m Evelyn
 
 ☄️ - Making things Fun\
 🌌 - Researching UX and Project Management\
