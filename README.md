@@ -1,7 +1,7 @@
 ## 🪐 Hi, I’m Evelyn
 
 ☄️ - Making things Fun\
-🌌 - Researching UX and Project Management\
+🌌 - UX designer and Project Manager\
 🛸 - Lets build your ideas\
 📡 - evolvewithevan@gmail.com\
 🛰️ - Also on Discord : `@livingsoul.` 
