@@ -1,6 +1,6 @@
 ## 🪐 Hi, I’m Evelyn
 
-☄️ - Make things Fun\
+☄️ - FOSS Contributor\
 🌌 - Project Manager\
 🛸 - Lets build your idea!\
 📡 - evolvewithevan@gmail.com\
