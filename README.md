@@ -2,7 +2,7 @@
 
 
 > [!WARNING]  
-> I am currently in BMT (Boot Camp) for the United State's Army. I will not be responsive for quite some time.
+> I am currently in BMT (Boot Camp) for the United States Army. I will not be responsive for quite some time.
 
 
 ☄️ - FOSS Contributor\
