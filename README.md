@@ -7,5 +7,5 @@
 📡 - evolvewithevan@gmail.com\
 🛰️ - Also on Discord : `@livingsoul.` 
 
-### “Trust is knowing that when a team member does push you, it’s because they care about the team.”\
+### “Trust is knowing that when a team member does push you, it’s because they care about the team.”
 — Patrick Lencioni
