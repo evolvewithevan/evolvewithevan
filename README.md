@@ -3,8 +3,9 @@
 
 ☄️ - FOSS Contributor\
 🌌 - Project Manager\
-🛸 - Lets build your idea!\
+🛸 - Lets share ideas!\
 📡 - evolvewithevan@gmail.com\
 🛰️ - Also on Discord : `@livingsoul.` 
 
-### *"If it can break, it probably already did"*
+### “Trust is knowing that when a team member does push you, it’s because they care about the team.”\
+— Patrick Lencioni
