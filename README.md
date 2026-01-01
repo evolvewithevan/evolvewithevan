@@ -1,4 +1,4 @@
-## 🪐 Hi, I’m Evelyn
+## 🪐 Hi, I’m Evan
 
 
 ☄️ - FOSS Contributor\
